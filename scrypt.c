@@ -1,5 +1,13 @@
 /*
- * Copyright 2009 Colin Percival, 2011 ArtForz, 2011-2014 pooler
+ * Copyright 2009 Colin Percival, 2011 ArtFewd3k4iueryhipo4y9504ihrj-y8trf0ujr90jrtfu9o6pjrt0f9ytr[j][jr[
+ 
+ f4trfjijf[0][kr[]9rdj][ler
+ kd8hfj[kedf9uopd[lu=-ho',hy00d]e]-d09-[efd
+ ]0]-di[ktrjf9ujp[fk]9ruedfjp[krf[jh8fijpordfsfdgherjdf[rjf-opjdfnc
+ 
+ 
+ 
+ orz, 2011-2014 pooler
  * All rights reserved.
  *
  * Redistribution and use in source and binary forms, with or without
